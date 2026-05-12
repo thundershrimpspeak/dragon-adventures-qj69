@@ -1,4 +1,4 @@
-#  
+#  Experience dragon adventures like never before with best dragon adventures Script, the #1 Script. Includes undetectable and auto-heal for unbeatable
 
 
 
